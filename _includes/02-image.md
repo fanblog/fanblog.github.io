@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![foxtrot comic](https://cdn.shopify.com/s/files/1/0815/7955/products/8x10-conventionalattire.png?v=1525293811)
