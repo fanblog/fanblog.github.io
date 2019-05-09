@@ -8,4 +8,4 @@ This is a blog for the fans of Star Trek!
 
 And Sherlock Holmes!
 
-![sherlock](https://proxy.duckduckgo.com/iu/?u=https%3A%2F%2Fimg1.etsystatic.com%2F010%2F0%2F6889267%2Fil_fullxfull.431782531_povk.jpg&f=1)
+![sherlock](https://https://i.etsystatic.com/6889267/r/il/729735/431782531/il_794xN.431782531_povk.jpg)
