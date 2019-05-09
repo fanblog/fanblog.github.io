@@ -8,4 +8,4 @@ This is a blog for the fans of Star Trek!
 
 And Sherlock Holmes!
 
-![sherlock](https://https://i.etsystatic.com/6889267/r/il/729735/431782531/il_794xN.431782531_povk.jpg)
+![sherlock](https://proxy.duckduckgo.com/iu/?u=http%3A%2F%2Fwww.queencityescape.com%2Fwp-content%2Fuploads%2F2016%2F01%2FSherlock-Holmes.jpg&f=1)
